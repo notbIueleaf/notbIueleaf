@@ -3,5 +3,5 @@
 </p>
 
 <p align="center">
-<img width="424" height="245" alt="2026_06_25_0wz_Kleki" src="https://github.com/user-attachments/assets/d9216dde-89ab-43f8-8381-11e36034776a" />
+<img width="424" height="245" alt="2026_06_25_0x1_Kleki" src="https://github.com/user-attachments/assets/c70b93de-0805-44e4-99b2-fdd94d99f8eb" />
 </p>
