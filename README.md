@@ -2,5 +2,5 @@
 
 
 <p align="right">
-Hi iwc , dni 13 and under <img width="212" height="244" alt="2026_06_27_05d_Kleki" src="https://github.com/user-attachments/assets/4c5d4aaa-b2fa-4fcd-895c-d1c2d2aae5a5" />
+<img width="1707" height="282" alt="2026_06_22_030_Kleki" src="https://github.com/user-attachments/assets/c79f18e6-da17-47b3-b420-f0d64a2a5d93" />
 </p>
