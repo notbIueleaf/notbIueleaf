@@ -1,6 +1,8 @@
 
+<p align="center">
+<img width="283" height="54" alt="TextStudio-Typewriter" src="https://github.com/user-attachments/assets/96b71f4f-0b1a-4515-91ee-5c2846654699" />
 
 
 <p align="center">
-  <img width="520" height="350" alt="ezgif-50f1e323778c608c" src="https://github.com/user-attachments/assets/24346196-d2f5-4771-97de-b8b5d8ed63ee" />
+<img width="424" height="245" alt="2026_06_25_0wz_Kleki" src="https://github.com/user-attachments/assets/adc5feb5-fab9-4450-9b2f-24f717e26491" />
 </p>
