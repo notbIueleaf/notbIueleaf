@@ -6,5 +6,5 @@
 wip
 </p>
 <p align="center">
-might unpriv this account and be a spam follow soon idk
+lowk invested in strength smp lore rn
 </p>
