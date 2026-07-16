@@ -6,5 +6,5 @@
 wip
 </p>
 <p align="center">
-lowk invested in strength smp lore rn + IM GONNA FOLLOW MORE PPL LATER IM JUST TIRED MAN.
+lowk invested in strength smp lore rn cause wth blueleaf is cooking
 </p>
